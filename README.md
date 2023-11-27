@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SultanAlanazie
-- 👀 I’m interested in Data Analyst and 
+- 👀 I’m interested in Data Analyst and Web Development
 - 🌱 I’m currently learning more
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Sultanonazi7@gmail.com
